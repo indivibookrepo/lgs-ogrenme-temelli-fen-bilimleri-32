@@ -1,0 +1,1 @@
+# lgs-ogrenme-temelli-fen-bilimleri-32
